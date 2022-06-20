@@ -1,3 +1,4 @@
+![Quality-assurance](https://user-images.githubusercontent.com/106456849/174657038-fd06ffed-4bea-4094-acd4-2ed7f21edd70.jpg)
 ### Hi there 👋
 
 <!--
